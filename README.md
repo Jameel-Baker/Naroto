@@ -1,2 +1,2 @@
 # Syria
-is strong
+NARoTO
